@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hey Stalker :smirk:
+![coding-typing](https://user-images.githubusercontent.com/130048119/234814702-705500c6-4b0e-4e59-a2e6-2ed094754466.gif)
 
 <!--
 **prarbdhsharma/prarbdhsharma** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
